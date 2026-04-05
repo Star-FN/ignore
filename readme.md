@@ -1,0 +1,1 @@
+https://cdn.discordapp.com/attachments/1171451894707781702/1171451894867181680/proper_fn_skeleton_1.blend?ex=69d3bf18&is=69d26d98&hm=9a60401afb9867958d4e2375294fb755346cbdb3ade7446f65704e0bbd33486a&
