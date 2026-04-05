@@ -1,1 +1,2 @@
+https://cdn.discordapp.com/attachments/1171456028827717673/1179605750507638814/io_import_scene_unreal_psa_psk_40.py?ex=69d3bf36&is=69d26db6&hm=ad43eab214e2cc622a87867f1d655bf4ad4911a6da4001734c219b26b35583be&
 https://cdn.discordapp.com/attachments/1171451894707781702/1171451894867181680/proper_fn_skeleton_1.blend?ex=69d3bf18&is=69d26d98&hm=9a60401afb9867958d4e2375294fb755346cbdb3ade7446f65704e0bbd33486a&
